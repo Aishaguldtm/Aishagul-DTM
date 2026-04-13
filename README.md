@@ -1,1 +1,0 @@
-# Aishagul-DTM
